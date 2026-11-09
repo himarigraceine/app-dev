@@ -1,18 +1,27 @@
 # **My favorite series: THE SUMMER I TURNED PRETTY**
+
 ## 2022–2025 · Drama/Romance · 3 Seasons · PG
+
 ### The Summer I Turned Pretty follows Belly Conklin’s summer at Cousins Beach, where long-standing friendships, shifting family bonds, and a love triangle with two brothers change her sense of self. Viewers may enjoy its warm chemistry, relatable coming-of-age themes, and emotional balance of joy and heartbreak. Critics praise its tender writing and nostalgic escapism, with generally favorable reviews highlighting its charm and heartfelt drama.
+
 [The Summer I Turned Pretty](https://ordertoread.com/reading-lists/the-summer-i-turned-pretty/)
 | Artist | Character Name |
 | ----------- | ----------- |
-| ![alt text](https://th.bing.com/th/id/OIP.iZfw0qFt4ci3sNlwR8iy7wHaJQ?r=0&o=7rm=3&rs=1&pid=ImgDetMain&o=7&rm=3)  **Lula Tung** | **Belly** |
-| ![alt text](https://tse2.mm.bing.net/th/id/OIP.z58eBV3ZIaq9LOhoagLzxAHaLH?r=0&w=660&h=990&rs=1&pid=ImgDetMain&o=7&rm=3) **Christopher Briney**| Conrad |
-| ![alt text](https://tse3.mm.bing.net/th/id/OIP.Ja7JGIaD0spZUWNh1h5_3AHaLH?r=0&rs=1&pid=ImgDetMain&o=7&rm=3) **Gavin Casalegno** | Jeremiah |
+| ![alt text](https://th.bing.com/th/id/OIP.iZfw0qFt4ci3sNlwR8iy7wHaJQ?r=0&o=7rm=3&rs=1&pid=ImgDetMain&o=7&rm=3)  | **Belly** |
+| ![alt text](https://tse2.mm.bing.net/th/id/OIP.z58eBV3ZIaq9LOhoagLzxAHaLH?r=0&w=660&h=990&rs=1&pid=ImgDetMain&o=7&rm=3) | Conrad |
+| ![alt text](https://tse3.mm.bing.net/th/id/OIP.Ja7JGIaD0spZUWNh1h5_3AHaLH?r=0&rs=1&pid=ImgDetMain&o=7&rm=3)  | Jeremiah |
+
 
 # **My favorite movie: Cinderella 2014**
+
 ## Cinderella is a 2015 romantic fantasy film directed by Kenneth Branagh and written by Chris Weitz. It is a live-action adaptation of the fairy tale of the same name, and Walt Disney's 1950 animated film. It stars Lily James as Cinderella, with an ensemble cast including Cate Blanchett, Richard Madden, Stellan Skarsgård, Holliday Grainger, Sophie McShera, Derek Jacobi, and Helena Bonham Carter.
+
 ### Ella, the kindhearted daughter of a wealthy merchant, lives happily with her parents. Ella's mother becomes ill; on her deathbed, she instructs Ella to always have courage and be kind. Years later, Ella's father marries the widowed Lady Tremaine, who has two daughters of her own, Drisella and Anastasia. After overhearing that Ella's father still misses his first wife, Lady Tremaine becomes bitterly jealous. When Ella's father leaves on a business trip, Lady Tremaine persuades Ella to give up her large bedroom to her stepsisters and move into the attic. Ella's father dies of illness during the journey, and Lady Tremaine dismisses all the household servants to save money, forcing their duties upon Ella instead. Seeing her face covered in cinders after sleeping by the fireplace, Ella's stepfamily mockingly dubs her "Cinderella".
+
 [Cinderella Info](https://en.wikipedia.org/wiki/Cinderella_(2015_American_film))
+
 ![alt text](https://3.bp.blogspot.com/-0r4ODf6V9XE/VwLcD-qzEzI/AAAAAAAAHqk/ZehE41pbFtUx8C447XzeXLI7f2-A2mYWA/s1600/Cinderella-2015-Movie-Poster-HD-Wallpapers.jpg)
+
 | Production | Cast |
 | ----------- | ----------- |
 |Walt Disney Pictures began developing a live-action reimagining of Charles Perrault's fairy tale Cinderella in May 2010, following the box-office success of Tim Burton's Alice in Wonderland (2010). The studio made a seven-figure pitch deal with Aline Brosh McKenna and Simon Kinberg, who were set as screenwriter and producer, respectively. According to Sean Bailey, studio chairman Alan F. Horn wanted to make the film a "definitive Cinderella for generations to come", and told him that if he needed to "spend a little more, spend it, to make sure it's one for the time capsule". McKenna's initial drafts suggested a "swashbuckling" take on the story, with the prince being groomed for a politically arranged marriage until he meets Cinderella, recast as a knight,whom McKenna described as "somebody who's learning to go after what she wants. Basically, she gets separated from the prince and has to find her way back to him, but it's more complicated than that. She's very active and independent".However, the idea was discarded, since the studio needed a more "recognizable" approach to the story.[15] In August 2011, Mark Romanek was hired to direct the film,[14] with Chris Weitz brought on to revise McKenna's script in February 2012.Romanek supervised the project for fifteen months,[18] envisioning a film that would be like "Barry Lyndon but with magic".[19] In January 2013, it was reported that Romanek left the project due to creative differences with Disney, as his vision of the film was darker than the studio wanted.[20] However, he would later clarify that he did not leave the project willingly, but was fired when an executive change occurred at Disney.[19] Later that month, Kenneth Branagh was announced to take over as director,[21] and by April 2013, Allison Shearmur and David Barron were hired as producers.[22] | In November 2012, Deadline Hollywood reported that Cate Blanchett was in deep negotiations to play Lady Tremaine. She was the first actor to sign on for the project[23] and, according to Shearmur, was always the only choice for the role.[24] A few days later, Saoirse Ronan, Alicia Vikander, and Gabriella Wilde were reported to be in the running for the role of Cinderella,[25] with Imogen Poots also being considered.[26] By February 2013, Emma Watson entered negotiations for the title role,[27] but a deal ultimately did not work out.[28] Later, after she was cast as Belle in the 2017 live-action film adaptation of Beauty and the Beast (1991), directed by Bill Condon and starring alongside Dan Stevens, Watson elaborated that she refused because Cinderella's character did not resonate with her.[29] By April 2013, Bella Heathcote, Lily James and Margot Robbie were testing for the title role,[30] with James eventually cast later that month. She originally auditioned for the role of Anastasia, before the casting director suggested that she try out for Cinderella.In the following month, Richard Madden was cast as Prince Kit. |
